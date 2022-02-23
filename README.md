@@ -2,6 +2,9 @@ Owned by : Leigh Micah Mayao
 
 ![start](.https://github.com/15lhs/15lhs.github.io/blob/main/%4015lhs%20%CB%9A%20%E0%BC%98%E2%9C%B6%20%E2%8B%86%EF%BD%A1%CB%9A.png)
 
+! [idk] (https://www.pinterest.ph/pin/355784439323614572/)
+
+
 You can use the [editor on GitHub](https://github.com/15lhs/15lhs.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
