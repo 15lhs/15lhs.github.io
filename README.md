@@ -4,6 +4,8 @@ Owned by : Leigh Micah Mayao 9-Brebeuf
 ୨୧ . . welcome to my space
 
 # . . . ‿̩͙‿̩̩̥͙̽photocards 
+photocards that I need to collect...
+
 ### ✧ album pcs
 ![1](https://user-images.githubusercontent.com/94212413/155293486-1e74f1f3-8beb-4197-ae6f-1ecab60a18d7.png)
 ![2](https://user-images.githubusercontent.com/94212413/155293505-f9306013-2ea0-40f3-9503-5ac6f4b90907.png)
@@ -12,7 +14,6 @@ Owned by : Leigh Micah Mayao 9-Brebeuf
 ![3](https://user-images.githubusercontent.com/94212413/155293602-7ef1d1e4-197c-4c47-96c2-feccdf01aa30.png)
 
 ### ✧ non-album pcs 
-
 ![4](https://user-images.githubusercontent.com/94212413/155293639-9b2ab978-cbde-4b47-9ba5-773668f2b099.png)
 
 # . . . ‿̩͙‿̩̩̥͙̽have 
@@ -27,6 +28,8 @@ Owned by : Leigh Micah Mayao 9-Brebeuf
 ![hfhb](https://user-images.githubusercontent.com/94212413/155297018-8907e639-d7ed-4d4b-b536-8c95ac755f59.png)
 
 # . . . ‿̩͙‿̩̩̥͙̽missing 
+photocards that I don't have yet...
+
 ### ✧ album pcs
 ![border  day one (5)](https://user-images.githubusercontent.com/94212413/155297055-55dc06f0-655f-4fc4-b6fa-10a914eaa741.png)
 ![border  day one (6)](https://user-images.githubusercontent.com/94212413/155297093-2b411380-8116-4721-93c2-c109d9955194.png)
