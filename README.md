@@ -2,7 +2,7 @@ Owned by : Leigh Micah Mayao 9-Brebeuf
 
 ![@15lhs ˚ ༘✶ ⋆｡˚](https://user-images.githubusercontent.com/94212413/155278448-99fd0c25-2147-4bdd-91e6-58298d456278.png)
 
-# collections
+# ✧ collections
 You can use the [editor on GitHub](https://github.com/15lhs/15lhs.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
