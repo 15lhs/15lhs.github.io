@@ -3,15 +3,13 @@ Owned by : Leigh Micah Mayao 9-Brebeuf
 ![@15lhs ˚ ༘✶ ⋆｡˚](https://user-images.githubusercontent.com/94212413/155278448-99fd0c25-2147-4bdd-91e6-58298d456278.png)
 ୨୧ . . welcome to my space
 
-# ✧ photocards 
+# ✧ photocards I need to highlight these ==very important words==.
 ### . . . ‿̩͙‿̩̩̥͙̽album pcs
 ![1](https://user-images.githubusercontent.com/94212413/155293486-1e74f1f3-8beb-4197-ae6f-1ecab60a18d7.png)
 ![2](https://user-images.githubusercontent.com/94212413/155293505-f9306013-2ea0-40f3-9503-5ac6f4b90907.png)
 
-
 ### . . . ‿̩͙‿̩̩̥͙̽japan album pcs
 ![3](https://user-images.githubusercontent.com/94212413/155293602-7ef1d1e4-197c-4c47-96c2-feccdf01aa30.png)
-
 
 ### . . . ‿̩͙‿̩̩̥͙̽non-album pcs 
 
@@ -21,7 +19,6 @@ Owned by : Leigh Micah Mayao 9-Brebeuf
 
 ### . . . ‿̩͙‿̩̩̥͙̽album pcs
 ![border  day one](https://user-images.githubusercontent.com/94212413/155294884-791834bf-043c-4d5d-a700-a213e86717b5.png)
-
 
 ### . . . ‿̩͙‿̩̩̥͙̽japan album pcs
 ![khgj](https://user-images.githubusercontent.com/94212413/155296996-1c2ad3f6-48ce-486b-9c39-8ee3ab823dda.png)
