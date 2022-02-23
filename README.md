@@ -1,8 +1,10 @@
 Owned by : Leigh Micah Mayao
 
-![start](.https://github.com/15lhs/15lhs.github.io/blob/main/%4015lhs%20%CB%9A%20%E0%BC%98%E2%9C%B6%20%E2%8B%86%EF%BD%A1%CB%9A.png)
 
-! [idk] (https://www.pinterest.ph/pin/355784439323614572/)
+
+![start](https://www.pinterest.ph/pin/355784439323614572/.jpg)
+
+![@15lhs ˚ ༘✶ ⋆｡˚](https://user-images.githubusercontent.com/94212413/155278448-99fd0c25-2147-4bdd-91e6-58298d456278.png)
 
 
 You can use the [editor on GitHub](https://github.com/15lhs/15lhs.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
