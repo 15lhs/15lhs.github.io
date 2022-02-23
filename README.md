@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+![alt text](image.jpg)
 Owned by : Leigh Micah Mayao 9-Brebeuf
 
 You can use the [editor on GitHub](https://github.com/15lhs/15lhs.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
