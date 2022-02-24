@@ -35,8 +35,9 @@ photocards that I don't have yet...
 ![border  day one (6)](https://user-images.githubusercontent.com/94212413/155297093-2b411380-8116-4721-93c2-c109d9955194.png)
 
 ### ✧ japan album pcs
-### ✧ non-album pcs![border  day one (2)](https://user-images.githubusercontent.com/94212413/155463801-9f9fad72-955f-430d-9d7c-b367bb1364aa.png)
+![border  day one (2)](https://user-images.githubusercontent.com/94212413/155463801-9f9fad72-955f-430d-9d7c-b367bb1364aa.png)
 
+### ✧ non-album pcs
 ![border  day one (4)](https://user-images.githubusercontent.com/94212413/155297167-d871b2f2-27a9-40f4-9b3c-f30be594b49d.png)
 # . . . ‿̩͙‿̩̩̥͙̽Prio
 ### ✧ b:do pcs
