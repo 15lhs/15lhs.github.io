@@ -43,6 +43,7 @@ photocards that I don't have yet...
 ### ✧ b:do pcs
 - [ ] border : day one dawn (ver. a)
 - [ ] border : day one dusk (ver. a,b,c)
+
 ### ✧ lucky draw
 - [ ] scylla
 - [ ] charybdis
