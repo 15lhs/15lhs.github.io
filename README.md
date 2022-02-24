@@ -39,7 +39,6 @@ photocards that I don't have yet...
 
 ### ✧ non-album pcs
 ![border  day one (4)](https://user-images.githubusercontent.com/94212413/155297167-d871b2f2-27a9-40f4-9b3c-f30be594b49d.png)
-
 # . . . ‿̩͙‿̩̩̥͙̽Prio
 ### ✧ b:do pcs
 - [ ] border : day one dawn (ver. a)
