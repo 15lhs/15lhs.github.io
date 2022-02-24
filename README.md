@@ -49,8 +49,6 @@ photocards that I don't have yet...
 - [ ] charybdis
 - [ ] odysseus
 
-### My Great Heading {#custom-id}
-
 <iframe width="500" height="300" src="https://www.youtube.com/embed/JQ-2sk2ELJI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ![now playing ; polaroid love](https://user-images.githubusercontent.com/94212413/155302366-b97e6d6d-b1a4-4326-be28-beb8e08f3840.png)
